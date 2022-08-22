@@ -1,6 +1,4 @@
-### This is a school account
-
-Go to my main and check out the good stuff
+### This is my shitty school acount if you want to check out the good stuff go check out my main
 
 https://github.com/HUGOW04
 
